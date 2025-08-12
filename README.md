@@ -55,5 +55,5 @@
 **Сколько стоит:**  
 6000 рублей за сессию 50 минут  
 
-**[Telegram](https://t.me/+79161678330) / [WhatsApp](https://wa.me/79161678330): +7 (916) 167 8330**
+**[Telegram]([https://t.me/dboldyrev) / [WhatsApp](https://wa.me/79161678330): +7 (916) 167 8330**
 

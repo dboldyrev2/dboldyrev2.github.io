@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="dmitry-boldyrev.jpg" alt="Дмитрий Болдырев" width="250">
+</p>
+
 # Дмитрий Болдырев
 
 **Высшее образование:**  
